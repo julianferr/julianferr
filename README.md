@@ -1,1 +1,1 @@
-Hi I’m @julianferr
+Graduate @TUD ~ Business Information Systems
