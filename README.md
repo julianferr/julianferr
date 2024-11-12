@@ -1,1 +1,1 @@
-Graduate @TUD ~ Business Information Systems
+Graduate @TUD
